@@ -14,5 +14,5 @@
 ## Sirinapha Madyukop
 ### 6602041520241
 
-## Kanjana Saimkao
+## Kanjana Saimao
 ### 6602041520012
